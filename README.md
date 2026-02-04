@@ -1,5 +1,4 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
- HEYOO!! I'm Lina , 16 y/o systems dweller & builder.⠀⠀⠀⠀⠀⠀⠀⠀⠀<br>     - I craft setups, tools, and custom environments.⠀⠀⠀⠀⠀⠀<br>     - Deep into hardware, game-dev, web-dev and graphic design :3⠀⠀⠀⠀⠀⠀⠀⠀<br>     - I'm into anything artsy; from painting, writing, music, crochet...⠀⠀⠀⠀⠀⠀⠀⠀⠀<br>     - Projects fueled by curiosity, not deadlines.⠀⠀⠀⠀⠀⠀⠀⠀⠀<br><br>⠀
+HEYOO!! I'm Lina , 16 y/o systems dweller & builder.⠀⠀⠀⠀⠀⠀⠀⠀⠀<br>     - I craft setups, tools, and custom environments.⠀⠀⠀⠀⠀⠀<br>     - Deep into hardware, game-dev, web-dev and graphic design :3⠀⠀⠀⠀⠀⠀⠀⠀<br>     - I'm into anything artsy; from painting, writing, music, crochet...⠀⠀⠀⠀⠀⠀⠀⠀⠀<br>     - Projects fueled by curiosity, not deadlines.⠀⠀⠀⠀⠀⠀⠀⠀⠀<br><br>⠀
 ⣿⣿⣿⣿⣿⣷⣿⣿⣿⡅⡹⢿⠆⠙⠋⠉⠻⠿⣿⣿⣿⣿⣿⣿⣮⠻⣦⡙⢷⡑⠘⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣷⣌⠡⠌⠂⣙⠻⣛⠻⠷⠐⠈⠛⢱⣮⣷⣽⣿
 ⣿⣿⣿⣿⡇⢿⢹⣿⣶⠐⠁⠀⣀⣠⣤⠄⠀⠀⠈⠙⠻⣿⣿⣿⣦⣵⣌⠻⣷⢝⠦⠚⢿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⢟⣻⣿⣊⡃⠀⣙⠿⣿⣿⣿⣎⢮⡀⢮⣽⣿⣿
 ⢿⣿⣿⣿⣧⡸⡎⡛⡩⠖⠀⣴⣿⣿⣿⠀⠀⠀⠀⠸⠇⠀⠙⢿⣿⣿⣿⣷⣌⢷⣑⢷⣄⠻⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⡿⣫⠶⠛⠉⠀⠁⠀⠈⠈⠀⠠⠜⠻⣿⣆⢿⣼⣿⣿⣿
